@@ -1,0 +1,1 @@
+# kokoronokiroku.github.io
